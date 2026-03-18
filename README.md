@@ -7,7 +7,7 @@
 
 - 📫 Cómo contactarme **patriciojimenez838@gmail.com**
 
-- 📄 Sobre mis experiencias [He aprendido a ser autodidacta y adaptarme a diversos lenguajes, aprendiendo desde lo más básico y luego a adaptarlo a lo conocido](He aprendido a ser autodidacta y adaptarme a diversos lenguajes, aprendiendo desde lo más básico y luego a adaptarlo a lo conocido)
+- 📄 Sobre mis experiencias [He aprendido a ser autodidacta y adaptarme a diversos lenguajes, aprendiendo desde lo más básico y luego a adaptarlo a lo conocido]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
